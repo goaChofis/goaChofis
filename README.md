@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about you need
 - 📫 How to reach me: rreyna
 - 😄 Pronouns: he
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: i lke star wars and food
 -->
